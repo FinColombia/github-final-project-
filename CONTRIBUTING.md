@@ -1,1 +1,1 @@
-All contributions are welcome
+All contributions are welcome.
